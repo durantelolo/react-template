@@ -1,0 +1,1 @@
+### Valtech_  reactTemplate Terms and Conditions of Use
